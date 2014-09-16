@@ -1,2 +1,0 @@
-rickynavas.github.io
-====================
